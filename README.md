@@ -1,0 +1,1 @@
+# wallpaperflare-resolution-search
